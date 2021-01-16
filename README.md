@@ -1,1 +1,0 @@
-# gomad-ki-khushi.github.io
